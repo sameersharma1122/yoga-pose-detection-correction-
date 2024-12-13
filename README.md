@@ -23,6 +23,6 @@
 
 ### **Hope this article can help you.**
 ### **If you have any questions please contact me for help!**
-### **Gmail: tuanddt.ai.work@gmail.com**
+### **Gmail: ss5942@srmist.edu.in**
 
 ### ***Thanks everyone!***
